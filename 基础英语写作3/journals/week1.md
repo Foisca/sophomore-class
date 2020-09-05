@@ -12,6 +12,6 @@ Today I reached level 100 in my LOL (League of Legends).
 
 # Fri. 5th Sep.
 
-​	Today I tried fry fan in Xinhad Dining Room. Woops, I forgot that I cannot eat fan, it nearly made me vomit. What's a bad beginning.
+​	Today I tried fry fan in Xinhai Dining Room. Woops, I forgot that I cannot eat fan, it nearly made me vomit. What's a bad beginning.
 
 ​	Then I spent 2 hours studying Matlab in dormitary. Quite substantial time.
