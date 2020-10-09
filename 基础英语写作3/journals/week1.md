@@ -43,7 +43,7 @@
 
 ​	The evening, once more... I attended a Junior class (Vocational Counsel).
 
-# Fri. 23th Sep.
+# Fri. 23rd Sep.
 
 ​	Today I tried fry fan in Xinhai Dining Room. Woops, I forgot that I cannot eat fan, it nearly made me vomit. What's a bad beginning.
 
